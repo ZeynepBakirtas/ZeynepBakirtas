@@ -1,4 +1,4 @@
-# Hello, I'm Zeynep Bakirtas 👋
+# Hello, I'm Zeynep Bakırtaş 👋
 
 ## About Me
 
